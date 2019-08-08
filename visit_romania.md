@@ -14,7 +14,8 @@
 
 ## How to get there
 
-Flying to Cluj-Napoca will get you in the center of the [Transylvania region](https://en.wikipedia.org/wiki/Transylvania) - where most of the best places are (except Timisoara and Bucharest)
+Flying to Cluj-Napoca will get you in the center of the [Transylvania region](https://en.wikipedia.org/wiki/Transylvania) - where most of the [best places](https://www.uncover-romania.com/attractions/by-region/transylvania) are (except Timisoara and Bucharest)
+From London Gatwick or Luton you can fly WizzAir. There should be also Ryanair and BlueAir from other airports, but they might land in other cities.
 * [WizzAir Airlines - low cost](https://wizzair.com/en-gb)
 
 ## Places to stay
@@ -28,6 +29,16 @@ Use [Booking](https://www.booking.com) or [AirBnB](https://www.airbnb.co.uk) for
 * [Grand Hotel Italia](https://grandhotelitaliacluj.ro/?lang=en)
 * [Wonderland](https://www.wonderlandcluj.ro/rad/)
 * [Golden Tulip](https://ana-dome.goldentulip.com/en-us)
+
+## Places to eat in Cluj-Napoca
+
+* Ursus Brewery Restaurant
+* Marty
+* Barakka
+* Zama
+* Casa Boema
+* Livada
+* Samsara - vegan/vegetarian
 
 ## What to visit near Cluj-Napoca / outdoor activities
 
